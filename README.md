@@ -7,4 +7,4 @@
 ![border](https://files.catbox.moe/4uwyec.jpg) 
 
 
-$${\color{#4B3F70}Shall We Meet Again Partner}$$ 
+$${\color{#F9D976}Shall We Meet Again Partner}$$ 
