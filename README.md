@@ -10,4 +10,4 @@
 $${\color{#F9D976}Shall We Meet Again Partner}$$ 
 
 
-[Sign.Ata](https://lumnye.atabook.org/)  [Straw.Page](https://
+.......[Sign.Ata](https://lumnye.atabook.org/)  [Straw.Page](https://lyalilum.straw.page)
