@@ -7,4 +7,4 @@
 ![border](https://files.catbox.moe/4uwyec.jpg) 
 
 
-    "Shall we meet again Partner" 
+$${\color{#4B3F70}Shall We Meet Again Partner}$$ 
