@@ -1,8 +1,10 @@
 ![phaistelle](https://files.catbox.moe/a8yaim.jpg)
 
+&emsp;
+
 ![Stelle](https://files.catbox.moe/m5ppp3.jpg)
 
-
+&emsp;
 
 ![border](https://files.catbox.moe/4uwyec.jpg) 
 
@@ -10,4 +12,4 @@
 $${\color{#F9D976}Shall We Meet Again Partner}$$ 
 
 
-   [Sign.Ata](https://lumnye.atabook.org/)       [Straw.Page](https://lyalilum.straw.page)
+&emsp;&emsp;&emsp;<img src="https://files.catbox.moe/6d3flg.jpg" width="300" height="200" alt="Sample"> &emsp;&emsp;<img src="https://files.catbox.moe/rcrwr0.jpg" width="300" height="200" alt="Sample">
