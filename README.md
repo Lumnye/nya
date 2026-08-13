@@ -1,1 +1,1 @@
-![Stelle](https://files.catbox.moe/4nmh7c.jpg) 
+![Stelle](https://files.catbox.moe/m5ppp3.jpg) 
